@@ -1,2 +1,2 @@
 # itc-pythonClub
-Classwork get!
+Classwork fool!
